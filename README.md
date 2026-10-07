@@ -1,7 +1,5 @@
-# Module-2-Prompte-for-Creative-Thinking-
-# Module 2: Prompts for Creative Thinking
+Module-2-Prompte-for-Creative-Thinking-Module 2: Prompts for Creative Thinking
 
-# Module 2: Prompts for Creative Thinking
 
 ## Unlocking Imagination and Innovation
 
